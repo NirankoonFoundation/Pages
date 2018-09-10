@@ -1,4 +1,4 @@
-# ເວັບໄຊທ໌ ມູລະນີທິ ນິຣັນກຸນ
+# ເວັບໄຊທ໌ ມູລະນິທິ ນິຣັນກຸນ
 Nirankoon Foundation Pages
 
 We are currentaly working with document issues.
